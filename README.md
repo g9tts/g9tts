@@ -1,4 +1,4 @@
-### Sou louco por programação, desde que comecei a me envolver na area me apaixonei. Buscando sempre evoluir 🎮
+### Sou louco por programação, desde que comecei a me envolver na area me apaixonei. Buscando sempre evoluir (☞ﾟヮﾟ)☞
 
 ![](https://super.abril.com.br/wp-content/uploads/2016/09/super_imggato_digitando_0.gif)
 
